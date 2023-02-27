@@ -4,7 +4,7 @@
 
 由于国内浏览器会对人视频进行画面揭无法访问，建议下载（google浏览器）看片无限制作。
 
-好123最新地址：https://www.hao123.com/
+好123最新地址：<a href="https://www.hao123.com/" target="_blank">hao123.com</a>
 
 备用地址1：https://www.hao123.com/
 

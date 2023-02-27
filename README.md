@@ -1,2 +1,21 @@
-# https-dizhi99.github.io-
-dizhi99.github.io
+好123 最后更新时间：2022.10.04
+
+请使用“CTRL+D”將本頁面添加至您的瀏覽器收藏夾內或手機截圖保存，方便下次訪問。
+
+由于国内浏览器会对成人视频进行屏蔽无法访问， 建议下载（google浏览器）看片无限制。
+
+久久爱片最新地址：https://www.hao123.com/
+
+备用地址1：https://www.hao123.com/
+
+备用地址2：https://www.hao123.com/
+
+备用地址3：https://www.hao123.com/
+
+备用地址4：https://www.hao123.com/
+
+备用地址5：https://www.hao123.com/
+
+如以上都无法打开时，可发任意消息至【hao123@gmail.com】获取最新地址。
+
+备用地址5：https://www.hao123.com/
